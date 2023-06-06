@@ -5,6 +5,7 @@
 - Gamer | Dev | YT | UI/UX DESIGNER
 - Some Dumb ok i code in python, js, c,cpp, and brainf**k
 - My [LinkTree Profile](https://linktr.ee/catcoder123)
+- My Discord [CatCoder123#3666](https://discord.gg/fgchmsS9NJ)
 
 
 
